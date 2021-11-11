@@ -1,4 +1,6 @@
-WHAT IS ARWI (ARABIC TAMIL)?
+<h1>WHAT IS ARWI (ARABIC TAMIL)?</h1>
+
+
 Arabic is one of the ten most spoken languages in the world. It is the predominant language of the Middle East and North Africa,including Saudi Arabia, Qatar and the United Arab Emirates – countries with a significant Tamil population. Furthermore, Arabic is the language used in Islam; since Muslims are expected to read and interpret the works of the Quran, they are expected to read the Arabic found in this religious text.
 
 Arabic is one of the ten most spoken languages in the world. It is the predominant language of the Middle East and North Africa, including Saudi Arabia, Qatar and the United Arab Emirates – countries with a significant Tamil population. Furthermore, Arabic is the language used in Islam; since Muslims are expected to read and interpret the works of the Quran, they are expected to read the Arabic found in this religious text.
